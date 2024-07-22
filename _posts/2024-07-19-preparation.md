@@ -13,4 +13,5 @@ I thought about the trip, what I might have forgotten, worried about the weather
 I woorried that I worry too much and cannot get enough sleep for the next day, when we had to make over 1K kilometers through
 whole Germany and over to Denmark. We woke up a few minutes before the alarm clock, brigh morning light and dew on the grass at around 4.30am.
 The morning when you embark on such a trip is the most exciting.
-We feel exhilareated like seeing a new life born - the life of a new trip!    
+We feel exhilareated like seeing a new life born - the life of a new trip!
+![My image](/assets/images/me_day_1.jpg)
